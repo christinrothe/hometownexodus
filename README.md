@@ -1,5 +1,7 @@
 #Hometown Exodus
 
+![ ](https://cloud.githubusercontent.com/assets/9571378/11809374/c8e40af6-a326-11e5-9ea1-0f456c7a957a.jpg)
+
 Based on a project in the Havelland, Germany I started to ask myself the question,
 why life in the own hometown is becoming more and more unattractive to many young people.
 
