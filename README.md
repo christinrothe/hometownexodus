@@ -24,6 +24,8 @@ Most participants are from germany and many from the university of applied scien
 
 The result might change from country to country and show other motivations for leaving home like political or family circumstances.
 
+![ ](https://cloud.githubusercontent.com/assets/9571378/11809483/84166634-a327-11e5-8e2e-1719f00215f8.png)
+
 ###general report
 https://christinrothe.typeform.com/report/gaj8RQ/Ogyy
 
